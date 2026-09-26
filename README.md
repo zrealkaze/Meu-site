@@ -1,0 +1,1 @@
+O codigo tem todos os direitos reservados por realkaze_, caso for utilizar coloque os créditos.
